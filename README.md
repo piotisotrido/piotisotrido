@@ -5,4 +5,4 @@
 - 📫 How to reach me piotisotrido@gmx.com
 - My discord Uling...
 <!----
-piotisotrido/piotisotrido is a ✨ special ✨ repository because its `README
+piotisotrido/piotisotrido is a ✨ special ✨ repository because its `READM
