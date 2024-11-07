@@ -5,4 +5,4 @@
 - 📫 How to reach me piotisotrido@gmx.com
 - My discord Uling...
 <!----
-piotisotrido/piotisotrido is a ✨ specia
+piotisotrido/piotisotrido is a ✨ speci
