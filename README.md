@@ -3,6 +3,6 @@
 - 🌱 I’m currently learning Golang.
 - 💞️ I’m looking to collaborate on rtx
 - 📫 How to reach me piotisotrido@gmx.com
-- My discord Uling...
+- My discord Uling....
 <!----
 piotisotrido/piotit
